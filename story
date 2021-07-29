@@ -5,3 +5,5 @@ He was about to eat the mouse when the mouse desperately requested the lion to s
  The lion laughed at the mouse’s confidence and let him go.
 
 One day, a few hunters came into the forest and took the lion with them. 
+
+This story teaches us that we should be nice to others so they are nice to us
